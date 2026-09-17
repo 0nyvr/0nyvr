@@ -9,6 +9,4 @@
 
 ![](https://files.catbox.moe/sl3h7u.png)
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=DA984C&style=plastic&label=CUSTOMERS)
-
-![](https://media1.tenor.com/m/ih288IXWcq0AAAAd/mau-makan-apa-general-aditya.gif)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=DA984C&style=plastic&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
