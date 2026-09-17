@@ -2,7 +2,7 @@
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
 
-![](https://files.catbox.moe/7kiiq0.png)
+![](https://files.catbox.moe/df39pc.jpg)
 
 ![](https://files.catbox.moe/cq9bzc.jpg)
 
