@@ -2,6 +2,8 @@
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
 
+![](https://files.catbox.moe/df39pc.jpg)
+
 ![](https://files.catbox.moe/eyv95o.jpg)
 
 <div align="center">
