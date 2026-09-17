@@ -1,4 +1,3 @@
-![](https://media1.tenor.com/m/roSOfAzgtBUAAAAd/blinkies.gif)
 ![](https://files.catbox.moe/eyv95o.jpg)
 
 <div align="center">
