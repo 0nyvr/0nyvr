@@ -6,6 +6,8 @@
 
 <sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://cyndatyphlosion.straw.page/)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@isolationPsd)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
 
+![](https://files.catbox.moe/sl3h7u.png)
+
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=DA984C&style=plastic&label=CUSTOMERS)
 
 ![](https://media1.tenor.com/m/ih288IXWcq0AAAAd/mau-makan-apa-general-aditya.gif)
