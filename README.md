@@ -3,6 +3,7 @@
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
 
 ![](https://files.catbox.moe/eyv95o.jpg)
+<div align="center">
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Miraculous!+Simply+the+best!;Second+line+of+text)](https://git.io/typing-svg)
 ![](https://files.catbox.moe/sl3h7u.png)
 
