@@ -6,7 +6,7 @@
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=“+Miraculous!+Simply+the+best!+”;“+Up+to+the+test+when+things+go+wrong!+”;“+Miraculous+the+luckiest!+”;“+The+power+of+love+always+so+strong!+”)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=“+Miraculous!+Simply+the+best!+”;“+Up+to+the+test+when+things+go+wrong!+”;“+Miraculous+the+luckiest!+”;“+The+power+of+love+always+so+strong!+”)]font=Playfair Display(https://git.io/typing-svg)
 
 ![](https://files.catbox.moe/sl3h7u.png)
 
