@@ -9,4 +9,4 @@
 
 ![](https://files.catbox.moe/sl3h7u.png)
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=DA984C&style=plastic&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=DA984C&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
