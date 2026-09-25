@@ -11,10 +11,6 @@ doubles kindly and respectfully dni
 
 sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://cyndatyphlosion.straw.page/)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@isolationPsd)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
 
-![](https://files.catbox.moe/ochyyu.gif)  ![](https://files.catbox.moe/98daer.gif)  ![](https://files.catbox.moe/e0g7pd.gif)
-
-![](https://files.catbox.moe/7kiiq0.png)
-
 <div align="center">
 
 ![](https://files.catbox.moe/hbv0mz.jpg)
