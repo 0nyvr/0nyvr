@@ -1,5 +1,8 @@
 <div align="center">
 
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=:3)
+
+
 ![](https://files.catbox.moe/y1k1y3.png)
 
 I LUV MY BABY BOYS SM <33
