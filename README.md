@@ -8,7 +8,7 @@
 
 <div align="center">
 
-![](https://files.catbox.moe/sl3h7u.png)
+![](https://litter.catbox.moe/5iozmvtmd3zqw3y4.jpg)
 
 <div align="center">
 
@@ -16,7 +16,7 @@
 
 ![](https://files.catbox.moe/ochyyu.gif)  ![](https://files.catbox.moe/98daer.gif)  ![](https://files.catbox.moe/e0g7pd.gif)
 
-![](https://files.catbox.moe/7kiiq0.png)
+![](https://litter.catbox.moe/5iozmvtmd3zqw3y4.jpg)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31k2yplnqxriltbjs42hxnz5ja2y&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f21c1e&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
