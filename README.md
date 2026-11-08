@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=blood)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=shattered)
 
 ![](https://files.catbox.moe/vr4fms.jpg)
 
