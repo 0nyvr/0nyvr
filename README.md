@@ -1,10 +1,10 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=heartbroken)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=shatterd)
 
 ![](https://files.catbox.moe/df39pc.jpg)
 
-![](https://files.catbox.moe/eyv95o.jpg)
+![](https://files.catbox.moe/2dhrzl.png)
 
 <div align="center">
 
