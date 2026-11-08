@@ -14,7 +14,7 @@
 
 <sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://labirhin.straw.page/)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@isolationPsd)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
 
-![](https://files.catbox.moe/ochyyu.gif)  ![](https://files.catbox.moe/98daer.gif)  ![](https://files.catbox.moe/e0g7pd.gif)
+*Have you ever gave yourself so much to something that you ended up losing yourself in the process?*
 
 ![](https://litter.catbox.moe/5iozmvtmd3zqw3y4.jpg)
 
