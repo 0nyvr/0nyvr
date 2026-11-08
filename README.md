@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=𝓁𝒶𝒹𝓎𝒷𝓁ℴℊℊℯ𝓇𝓈🐞)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=f21c1e&label=heartbroken)
 
 ![](https://files.catbox.moe/df39pc.jpg)
 
