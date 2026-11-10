@@ -13,7 +13,6 @@
 <div align="center">
 
 <sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://labirhin.straw.page/)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@isolationPsd)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
-
 $${\color{#8b000} *Have you ever gave yourself so much to something that you ended up losing yourself in the process?*}$$
 
 ![](https://litter.catbox.moe/5iozmvtmd3zqw3y4.jpg)
