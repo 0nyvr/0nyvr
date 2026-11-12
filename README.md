@@ -8,7 +8,7 @@
 
 <div align="center">
 
-![](https://litter.catbox.moe/8p0xuy21ks620pdh.webp)
+![](https://files.catbox.moe/m8rhf0.jpg)
 
 <div align="center">
 
