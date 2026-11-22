@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=980002&label=shattered-glass)
+![Views](https://files.catbox.moe/mfs1sc.png)
 
 ![](https://files.catbox.moe/vr4fms.jpg)
 
