@@ -1,3 +1,5 @@
+***WIP BC MY GITHUB ISNT WORKING PROPERLY***
+
 <div align="center">
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=980002&label=blue.)
