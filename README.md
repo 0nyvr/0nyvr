@@ -4,7 +4,7 @@
 
 ![](https://files.catbox.moe/mfs1sc.png)
 
-![](https://files.catbox.moe/qy43li.webp)
+![](https://files.catbox.moe/lfezgt.webp)
 
 <div align="center">
 
