@@ -45,3 +45,5 @@ i really wanted to start over and fix everything and you didnt even let me.
 ur **unloyal** and **uncaring** which is why ur friends didnt even care about you and not giving you any attention because ur **useless**. and i can see that.
 
 i promise you that you and i will never see eachother again.
+
+i fucking hate you @umbra_thorn
