@@ -38,6 +38,6 @@
 
 <div align="center">
 
-i gave you the opportunity to give you another chance since you really **missed** me so much and yet you didnt do the same for me. you only did this just to hurt my feelings more.
+i gave myself the opportunity on giving you another chance since you really **missed** me so much and yet you didnt do the same for me. you only did this just to hurt my feelings more.
 
 i really wanted to start over and fix everything and you didnt even let me.
