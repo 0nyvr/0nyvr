@@ -1,5 +1,3 @@
-***WIP BC MY GITHUB ISNT WORKING PROPERLY***
-
 <div align="center">
 
 ![Views](https://komarev.com/ghpvc/?username=nlndow&color=980002&label=blue.)
@@ -23,3 +21,5 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31k2yplnqxriltbjs42hxnz5ja2y&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 ![](https://files.catbox.moe/rkoqfd.png)
+
+![](https://files.catbox.moe/nasoz7.jpg)
