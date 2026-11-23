@@ -27,5 +27,6 @@
 <div align="center">
 
 **you thought i didnt know about ur ***lies*** do you?**
+<div align="center">
 **all those things you said to me are a fucking joke
 
