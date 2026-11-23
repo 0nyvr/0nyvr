@@ -46,4 +46,4 @@ ur **unloyal** and **uncaring** which is why ur friends didnt even care about yo
 
 i promise you that you and i will never see eachother again.
 
-i fucking hate you @umbra_thorn
+i fucking hate you <sub>[umbra.](www.github.com/@umbra_thorn)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ
