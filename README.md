@@ -6,7 +6,7 @@
 
 ![](https://files.catbox.moe/mfs1sc.png)
 
-![](https://files.catbox.moe/lfezgt.webp)
+![](https://files.catbox.moe/xt1a9z.png)
 
 <div align="center">
 
