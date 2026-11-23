@@ -16,7 +16,7 @@
 
 <div align="center">
 
-**... and die. (targeted)**
+**... and ***die.*** (targeted)**
 
 ![](https://files.catbox.moe/6rhqbr.jpg)
 
