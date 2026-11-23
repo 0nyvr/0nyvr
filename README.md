@@ -13,6 +13,7 @@
 <sub>[𝑺𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://bloodfoul.straw.page/)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ[𝑷𝒓𝒐𝒏𝒐𝒖𝒏𝒔](https://pronouns.cc/@isolationPsd)ㅤㅤㅤㅤㅤ[𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://titansepekanman.atabook.org/)
 
 ***“ I HOPE YOU FUCKING CHOKE. ”***
+<div align="center">
 **... and die. (targeted)**
 
 ![](https://files.catbox.moe/6rhqbr.jpg)
