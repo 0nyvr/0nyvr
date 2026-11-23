@@ -42,4 +42,4 @@ i gave myself the opportunity on giving you another chance since you really **mi
 
 i really wanted to start over and fix everything and you didnt even let me.
 
-ur **unloyal** and **uncaring** which is *why* ur friends didnt even care about you and not giving you any attention because ur useless. and i can see that.
+ur **unloyal** and **uncaring** which is why ur friends didnt even care about you and not giving you any attention because ur **useless**. and i can see that.
