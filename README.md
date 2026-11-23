@@ -1,6 +1,6 @@
 <div align="center">
 
-![Views](https://komarev.com/ghpvc/?username=nlndow&color=980002&label=blue.)
+![Views](https://komarev.com/ghpvc/?username=nlndow&color=0000FF&label=blue.)
 
 ![](https://files.catbox.moe/mfs1sc.png)
 
