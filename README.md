@@ -34,7 +34,7 @@
 
 <div align="center">
 
-**you almost really had me ***fooled***.**
+**you almost really had me ***fooled***. you thought i was this stupid?**
 
 <div align="center">
 
