@@ -16,7 +16,7 @@
 
 <div align="center">
 
-**... and ***die.*** (targeted)**
+**... and ***die***. (targeted)**
 
 ![](https://files.catbox.moe/6rhqbr.jpg)
 
@@ -26,4 +26,5 @@
 
 <div align="center">
 
-**you thought i didnt know about ur lies.**
+**you thought i didnt know about ur ***lies***.**
+
