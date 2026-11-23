@@ -46,4 +46,6 @@ ur **unloyal** and **uncaring** which is why ur friends didnt even care about yo
 
 i promise you that you and i will never see eachother again.
 
+goodluck with ur new life without me and i really dont give a dicking shit anymore.
+
 i fucking hate you <sub>[umbra.](https://github.com/Umbra_thorn)󠀠󠀠󠀠ㅤㅤㅤㅤㅤ
